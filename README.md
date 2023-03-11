@@ -7,7 +7,7 @@ you can also send us something cool at leuviah@claritycoin.org or personal email
 # in case of anonymous archangels, we pay it forward no more than 99charity/1us and thats non negotiable
 # the more you give, the more Leuviah gives away
 ⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
-This "document" is brought to you in part by..like seven different personalities at around
+# This "document" is brought to you in part by..like seven different personalities at around
 7 different points in time from around the same brain
 ⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏕⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 # You ether die a villian or live long enough to see yourself become a hero
